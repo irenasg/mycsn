@@ -2,7 +2,7 @@
 
 MyCSN delivers social change and industry innovation to traditional business models via an online marketplace platform. We are an Australian  startup.  
 
-If you are a developer with experience in Near-Me, Shopify or Airtasker and a re looking to be a change maker in a traditional, mature industry please contact us.
+If you are a developer with experience in Near-Me, Shopify or Airtasker and are looking to be a change maker in a traditional, mature industry please contact us.
 
 Find our ad at https://www.seek.com.au/Job/32128845?_ga=1.256401229.715448666.1462312220 
 
